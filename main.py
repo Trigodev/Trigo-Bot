@@ -1,6 +1,8 @@
-  a      Atsuho c bon mnt?                                              
+       Atsuho c bon mnt?                                              
 
-smmmmmmFAIT PAR ADONIS.PY
+FAIT PAR ADONIS.PY
+
+
 hsydyhhhhydysdmdsyhhys+/::-.`  -yhshd+``/o/-`                                                                
 
 `+yddddyshyhysoyyhhsdmdso`           `ohmdhhy`` .+s++/`                 
